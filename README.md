@@ -1,2 +1,0 @@
-# ececikmateklifi
-ececikmateklifi
